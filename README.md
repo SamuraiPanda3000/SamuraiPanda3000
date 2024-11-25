@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @SamuraiPanda3000. Most people call me Panda. (Only online.)
+- 👋🏾 Hi, I’m @SamuraiPanda3000. Most people call me Panda. (Only online.)
 - 👀 I’m interested in science, science fiction, anime, cartoons, video games, programming, video game development, pop culture, old cd sample discs, and more.
-- 🌱 I’m currently learning something. I don't know what. :P
+- 💻 I’m currently learning something. I don't know what. :P
 - 💞️ I’m looking to collaborate on nothing yet. I just got here.
 - 📫 You can reach me on Instagram @samuraipanda3vamps. Or here on Github.
 - 😄 Pronouns: She/her

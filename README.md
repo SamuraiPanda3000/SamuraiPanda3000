@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on... nothing yet. I just got here.
 - 📫 You can reach me on Instagram @samuraipanda3vamps or in the links in my linktree.
 - 😄 Pronouns: She/her
-- 🔢 Age: 19
+- 🔢 Age: 20
 - ⚡ Fun fact: I have high suspicions that I'm autistic and have ADHD. However, I'm broke, so I'm not officially diagnosed.
 
 <!---
